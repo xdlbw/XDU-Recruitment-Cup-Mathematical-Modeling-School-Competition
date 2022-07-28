@@ -1,2 +1,3 @@
-# XDU-Recruitment-Cup-Mathematical-Modeling-School-Competition
-First prize😍
+2022xdu招行杯五一校赛一等奖
+
+感谢两位队友
